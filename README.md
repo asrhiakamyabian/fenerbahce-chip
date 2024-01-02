@@ -1,2 +1,0 @@
-# fenerbahce-chip
-fenerbahce chip
